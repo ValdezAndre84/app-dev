@@ -11,7 +11,7 @@ My first repository.
    - Riley's emotions have new members as she transitions into a state called "Puberty". Anxiety becomes a central character, along with Embarrassment, Ennui, and Envy, all contributing to Riley’s emotional shenanigans
 
 - **The Hockey Camp**:
-   - Riley's sense of self is challenged after going to a new hockey camp. The film explores her new emotions manipulating her behavior in a nes environment
+   - Riley's sense of self is challenged after going to a new hockey camp. The film explores her new emotions manipulating her behavior in a new environment
 
 - **Adolescence and Relationships**:
    - The film portrays about adolescence, affecting Riley’s changing emotions evident in her relationships, even to her friends
